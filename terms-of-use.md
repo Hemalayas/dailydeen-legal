@@ -129,7 +129,7 @@ These Terms, together with our Privacy Policy, constitute the entire agreement b
 21. Contact Us
 If you have any questions about these Terms of Use, please contact us:
 Hemalayas Webcare
-Email: [your-support-email@domain.com]
-Website: [your-website.com]
+Email: hemalkanjee03@gmail.com
+Website: https://github.com/Hemalayas
 
 Jazakallah Khayran for using Daily Deen. May it be a source of barakah and ease in your daily worship.
